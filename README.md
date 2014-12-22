@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-To the parson, vicar or curate, of [blank] and to everie of themGodwin, Francis, 1562-1633.1603Appro
+TO THE PARSON, VICAR or Curate, of and to everie of them.BEING given to vnderstand of certaine notor
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
